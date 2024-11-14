@@ -3,8 +3,8 @@
 🏷 Reward : 2857 BABYPNUT For 3,500 Random Winner
 
 ## 🪂 Register: [BABYPNUT](https://t.me/BabyPnutAirdropBot?start=1170158500)
--  Join Telegram
--  Follow Twitter
+-  [Join Telegram](https://t.me/garapanairdrop_indonesia)
+-  [Follow Twitter](https://x.com/intent/follow?screen_name=GepengAI)
 -  Complete Another Task  
 -  [Submit BSC Address](https://share.bwb.global/invite_earn_coin?inviteCode=LDLXuv&utmSource=referral2.0_copyLink)
 -  Done 
